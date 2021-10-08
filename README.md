@@ -9,6 +9,9 @@ Please ensure you have the following:
 4. A snack
 5. A lot of fun with you
 6. A video camera
+7. First Aid kit
+
+
 
 Kindly note!
 
