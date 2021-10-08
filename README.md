@@ -8,6 +8,7 @@ Please ensure you have the following:
 3. A cap
 4. A snack
 5. A lot of fun with you
+6. A video camera
 
 Kindly note!
 
